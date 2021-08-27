@@ -1,1 +1,1 @@
-Colloboration
+Collаboration
